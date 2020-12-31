@@ -1,1 +1,1 @@
-# Aloo-Pakora
+This is a snack recipe.

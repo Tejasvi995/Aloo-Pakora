@@ -1,0 +1,1 @@
+potato, besan, rice flour, cornflour, salt, ginger-garlic paste, red chili powder, turmeric powder, baking soda, and chaat masala.
