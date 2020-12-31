@@ -1,1 +1,1 @@
-This is a snack recipe.
+This is a spicy snack recipe. It is made up of potato.
